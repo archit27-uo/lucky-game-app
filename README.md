@@ -21,6 +21,12 @@
 
 [Watch the video](https://youtube.com/shorts/mY4A6l3Xaz4?feature=shared)
 
+
+
+https://github.com/archit27-uo/lucky-game-app/assets/75472988/fbbb3a32-5254-4718-a6b8-b01bf0519d83
+
+
+
 ## APK
   
   - [apk](https://drive.google.com/file/d/1ZUzevROKd1uOwoTzTrgWn3cxBPF97wvy/view?usp=sharing)
