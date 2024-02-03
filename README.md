@@ -30,3 +30,9 @@ https://github.com/archit27-uo/lucky-game-app/assets/75472988/fbbb3a32-5254-4718
 ## APK
   
   - [apk](https://drive.google.com/file/d/1ZUzevROKd1uOwoTzTrgWn3cxBPF97wvy/view?usp=sharing)
+
+## Developer Contact
+
+- Name - Archit Chawda
+- Email - archit27chawda@gmail.com
+- Phone number - 8103420624
