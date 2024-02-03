@@ -19,7 +19,8 @@
 
 ## Video
 
+[Watch the video](https://youtube.com/shorts/mY4A6l3Xaz4?feature=shared)
 
 ## APK
   
-  - apk](https://drive.google.com/file/d/1ZUzevROKd1uOwoTzTrgWn3cxBPF97wvy/view?usp=sharing)
+  - [apk](https://drive.google.com/file/d/1ZUzevROKd1uOwoTzTrgWn3cxBPF97wvy/view?usp=sharing)
